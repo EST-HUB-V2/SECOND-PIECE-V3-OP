@@ -1,1 +1,0 @@
-# SECOND-PIECE-V3-OP
